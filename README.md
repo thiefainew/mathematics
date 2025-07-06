@@ -1,1 +1,1 @@
-# Personal mathemathics ressources
+# Personal mathematics ressources
